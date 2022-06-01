@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MagickRain
+- 👀 I’m interested in coding websites and apps 
+- 🌱 I’m currently learning through a UX/UI bootcamp at University of Minnesota
+- 📫 How to reach me: Twitter, IG, or Facebook @MagicksGameroom
